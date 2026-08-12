@@ -1,4 +1,4 @@
-# **Holehe OSINT - surahdata3641@gmail.com
+# **Holehe OSINT - **
 👋 Hi there! For any professional inquiries or collaborations, please reach out to me at:
 megadose@protonmail.com
 
